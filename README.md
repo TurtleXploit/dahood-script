@@ -1,2 +1,2 @@
-# hoodshark-script
-hoodshark, e and racist whale
+# Best dahood script
+only for dahood
