@@ -1,1 +1,2 @@
-use it only for dahood (ONLY FOR DAHOOD)
+If there is a problem you can dm me! 
+My Discord: Turtlepicoo#2010 
