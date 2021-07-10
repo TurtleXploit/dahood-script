@@ -1,2 +1,1 @@
-# Best dahood script
-only for dahood
+use it only for dahood (ONLY FOR DAHOOD)
